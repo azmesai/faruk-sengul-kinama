@@ -25,3 +25,4 @@ asil konu, 2.bolumun sonlarindan 3uncu bolumun ortalarina devam ediyor.
 
 ## Kınamaları İmzalayanlar:
 - [Fatih Kadir Akın](http://github.com/f)
+- [Fatih GÜRSOY](http://github.com/fg)
