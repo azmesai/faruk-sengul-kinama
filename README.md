@@ -1,5 +1,11 @@
-# faruk-sengul-kinama
-Cinsiyetci ve is ahlakina aykiri konusmalarindan oturu Argede Bilisim sahibi Faruk Sengul icin kinama mektubu yaziyoruz.
+# faruk-sengun-kinama
+edit : Sahsin ismi sozlukten bir suser'in uyarisi uzerine Sakarya Teknokent web sayfasinda yanlis yazildigini ogrenmis bulunduk. 
+
+
+> (#59133916) selam, http://adatavir.com/haber/19396/faruk-sengun-un-aci-gunu.jspx# burada ve linkedinde vs sengun olarak geçiyor bir kontrol et tekrar istersen.
+
+
+Cinsiyetci ve is ahlakina aykiri konusmalarindan oturu Argede Bilisim sahibi Faruk Sengun icin kinama mektubu yaziyoruz.
 
 Lutfen gondereceginiz dosyalari `isim-soyisim.md` seklinde Markdown formatinda ekleyin. 
 
