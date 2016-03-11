@@ -1,7 +1,7 @@
 # faruk-sengul-kinama
 Cinsiyetci ve is ahlakina aykiri konusmalarindan oturu Argede Bilisim sahibi Faruk Sengul icin kinama mektubu yaziyoruz.
 
-Lutfen gondereceginiz dosyalari `isim-soyisim.txt` formatinda ekleyin. 
+Lutfen gondereceginiz dosyalari `isim-soyisim.md` seklinde Markdown formatinda ekleyin. 
 
 Bunun ardindan bir editor yardimiyla duzenli bir hale getirdikten sonra isminin gecmesini isteyenleri en alta ekleyerek uygun bir mecrada yayinlayacagiz. 
 
