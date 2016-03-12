@@ -27,11 +27,12 @@ asil konu, 2.bolumun sonlarindan 3uncu bolumun ortalarina devam ediyor.
 ---
 
 ## Kınamaları İmzalayanlar:
-- [Fatih Kadir Akın](http://github.com/f)
-- [Eray Aydın](http://github.com/erayaydin)
-- [Fatih GÜRSOY](http://github.com/fg)
-- [Emre YILMAZ](http://github.com/delirehberi)
-- [Gurkan Oluc](http://github.com/gurkanoluc)
 - [Burak Can](http://github.com/burakcan)
-- [Samet Aydemir](http://github.com/smtaydemir)
+- [Emre YILMAZ](http://github.com/delirehberi)
+- [Eray Aydın](http://github.com/erayaydin)
 - [Fatih Erikli](http://github.com/fatiherikli)
+- [Fatih GÜRSOY](http://github.com/fg)
+- [Fatih Kadir Akın](http://github.com/f)
+- [Gökay Gürcan](https://github.com/gokaygurcan)
+- [Gurkan Oluc](http://github.com/gurkanoluc)
+- [Samet Aydemir](http://github.com/smtaydemir)
