@@ -27,6 +27,7 @@ asil konu, 2.bolumun sonlarindan 3uncu bolumun ortalarina devam ediyor.
 ---
 
 ## Kınamaları İmzalayanlar:
+- [Armagan Amcalar](http://github.com/dashersw)
 - [Burak Can](http://github.com/burakcan)
 - [Emre YILMAZ](http://github.com/delirehberi)
 - [Eray Aydın](http://github.com/erayaydin)
