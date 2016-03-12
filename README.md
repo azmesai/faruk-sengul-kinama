@@ -27,3 +27,4 @@ asil konu, 2.bolumun sonlarindan 3uncu bolumun ortalarina devam ediyor.
 - [Fatih Kadir Akın](http://github.com/f)
 - [Eray Aydın](http://github.com/erayaydin)
 - [Fatih GÜRSOY](http://github.com/fg)
+- [Emre YILMAZ](http://github.com/delirehberi)
