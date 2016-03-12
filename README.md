@@ -32,3 +32,4 @@ asil konu, 2.bolumun sonlarindan 3uncu bolumun ortalarina devam ediyor.
 - [Fatih GÜRSOY](http://github.com/fg)
 - [Emre YILMAZ](http://github.com/delirehberi)
 - [Gurkan Oluc](http://github.com/gurkanoluc)
+- [Samet Aydemir](http://github.com/smtaydemir)
