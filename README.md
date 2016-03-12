@@ -33,3 +33,4 @@ asil konu, 2.bolumun sonlarindan 3uncu bolumun ortalarina devam ediyor.
 - [Emre YILMAZ](http://github.com/delirehberi)
 - [Gurkan Oluc](http://github.com/gurkanoluc)
 - [Burak Can](http://github.com/burakcan)
+- [Samet Aydemir](http://github.com/smtaydemir)
