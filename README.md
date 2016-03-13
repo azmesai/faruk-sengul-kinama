@@ -39,6 +39,7 @@ asil konu, 2.bolumun sonlarindan 3uncu bolumun ortalarina devam ediyor.
 - [Gökay Gürcan](https://github.com/gokaygurcan)
 - [Gurkan Oluc](http://github.com/gurkanoluc)
 - [Halit Alptekin](http://github.com/halitalptekin)
+- [Mihriban Minaz](http://github.com/mihriminaz)
 - [Oğuzhan Aslan] (http://github.com/oguzhanaslan)
 - [Samet Aydemir](http://github.com/smtaydemir)
 - [Timucin Gelici](http://github.com/timucingelici)
