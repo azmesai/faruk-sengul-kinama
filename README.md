@@ -37,6 +37,7 @@ asil konu, 2.bolumun sonlarindan 3uncu bolumun ortalarina devam ediyor.
 - [Fatih Kadir Akın](http://github.com/f)
 - [Gökay Gürcan](https://github.com/gokaygurcan)
 - [Gurkan Oluc](http://github.com/gurkanoluc)
+- [Oğuzhan Aslan] (http://github.com/oguzhanaslan)
 - [Samet Aydemir](http://github.com/smtaydemir)
 - [Timucin Gelici](http://github.com/timucingelici)
 - [Zeki Unal](http://github.com/zekiunal)
