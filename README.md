@@ -19,7 +19,7 @@ Konuyla ilgili videolar:
 - 2.bolum https://www.youtube.com/watch?v=I4e1JJhCBYs
 - 3.bolum https://www.youtube.com/watch?v=2w-dnUpuhNk
 
-Ilgili videolarin kopyalarina [buradan](https://github.com/azmesai/faruk-sengul-kinama) da ulasabilirsiniz.
+Ilgili videolarin kopyalarina [buradan](https://drive.google.com/a/leventyalcin.com/folderview?id=0BxLKFjSyiyCIakFxX2JkSVI0Zmc&usp=sharing) da ulasabilirsiniz.
 
 
 asil konu, 2.bolumun sonlarindan 3uncu bolumun ortalarina devam ediyor.
