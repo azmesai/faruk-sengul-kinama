@@ -41,6 +41,7 @@ Neyse beyim, bu kadar lakirdi yeter. Dememiz o ki;
 Bu sebeplerden mutevellit seni kiniyoruz. Egri oturup dogru konusalim beyim, sen kucuk golun orta halli baligisin, biz ise deniz ekosisteminin ta kendisiyiz. Senin kabadayiliklarin da bize sokmez, o kucuk baliklari da yedirmeyiz sana. Hepimiz ziyadesiyle tecrube sahibiyiz, "vay efenim yanlis anlasilmis da dediklerim, oyle demek istemedim de, bak boyle boyle dedim de, aslinda cok da kral adamim da" larina tecrubesiz genc arkadaslarimiz kanabilir ama biz yemeyiz beyim.
 
 Senden isteyecegimiz basit. Onurlu bir insan gibi cik sahneye; 
+
 1. Bu konusmanin tamami icin ozur dile. 
 2. O umutlarini kirdigin, hayallerini yiktigin kadin arkadaslarimizdan ozur dile hataliydim de. 
 3. Oncelikle bir calisanin yasal haklarinin neler oldugunu, bu konuda neler ogrenmeleri gerektigini, alacaklari maasin neyin karsiligi oldugunu anlat.
