@@ -39,3 +39,4 @@ asil konu, 2.bolumun sonlarindan 3uncu bolumun ortalarina devam ediyor.
 - [Samet Aydemir](http://github.com/smtaydemir)
 - [Timucin Gelici](http://github.com/timucingelici)
 - [Zeki Unal](http://github.com/zekiunal)
+- [Aybars Badur](http://github.com/ybrs)
