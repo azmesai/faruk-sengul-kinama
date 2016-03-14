@@ -1,12 +1,13 @@
-Video: https://www.youtube.com/watch?v=I4e1JJhCBYs
+Video: 
+- https://www.youtube.com/watch?v=I4e1JJhCBYs (full)
+- https://youtu.be/I4e1JJhCBYs?t=15m20s (15:20'den sonrası)
 
-== Video Baslangici ==
+== Video Başlangıcı ==
 
-15:20 final arasi:
+15:20 final arası:
 
-Melek Kocar: Ben sunu sormak istiyorum. Bilisim sektorunde kadin yazilimcilara yonelik yetistirmek ya da bu sektorun kadin yazilimcilara bakis acisini merak ediyorum bir de sizin firmanizin ve Polisoft’un da bu konuda ne dusundugunu merak ediyorum.
+**Melek Kocar**: Ben şunu sormak istiyorum: Bilişim sektöründe kadın yazılımcılara yönelik yetiştirmek ya da bu sektörün kadın yazılımcılara bakış açısını merak ediyorum. Bir de sizin firmanızın ve Polisoft’un da bu konuda ne düşündüğünü merak ediyorum.
 
-Faruk Sengun:  Ben benim sirketim olarak size soyleyeyim. Bayan yazilimcilar bana gore gorev adamidir, verdigim isi titizlikle bitirmeye calisir ama bayan arkadaslarda soyle bir handikap durumu var - bu sadece bizim kendi yasadigimiz durumlardan birisi - cok nazlilar! Yani diyosun ki bugun bi saat calismamiz lazim diyosun, benim cikmam lazim diyor. Bi saat calisicaz yani sonucta bir is var bunu yapmamiz lazim yani. Sonucta tek basimiza yapacagimiz bir is degil, ornek veriyorum.
+**Faruk Şengün**: Ben, benim şirketim olarak size söyleyeyim. Bayan yazılımcılar bana gore görev adamıdır. Verdiğim işi titizlikle bitirmeye çalışır; ama bayan arkadaşlarda şöyle bir handikap durumu var - bu sadece bizim kendi yaşadığımız durumlardan birisi - çok nazlılar! Yani diyosun ki "bugün bi saat çalışmamız lazım" diyosun, "benim çıkmam lazım" diyor. Bi saat çalışıcaz yani sonuçta bir iş var bunu yapmamız lazim yani. Sonuçta tek başımıza yapacağımız bir iş değil, örnek veriyorum ...
 
 == Video Sonu ==
-
