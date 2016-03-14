@@ -24,7 +24,7 @@ Bak beyim isi buraya getirirsen al takke ver kulah, bozusuruz. Unuttuysan hatirl
 
 Verdigin para kara kasimizin, kara gozumunuzun hayrina degil. Hele hele verdigin para onurumuzun karsiligi hic degil. Sen belli ki bu isler nasil oluyor bilmiyorsun. Gel sana anlatalim. 
 
-Elinde X birim is var, X biriminde yapilmasi gerekenler A, B, C. Bu A, B, C'yi yapmasi gerekenler V, Y, Z. V, Y, Z'yi saglayabilecek insanlar Melek, Hayri, Gunduz. Yap zamanlama planlarini, dagit islerini, problem cozulmus. Cozemiyorsan, bu kadar insaniz yahu, beyler bilinmeyenler bunlar, hele bu probleme el atin de, imece usulu cozelim ve bu is huzur icinde cozulsun. 
+Elinde X birim is var, X biriminde yapilmasi gerekenler A, B, C. Bu A, B, C'yi yapmasi gerekenler V, Y, Z. V, Y, Z'yi saglayabilecek insanlar Melek, Hayri, Gunduz. Yap zamanlama planlarini, dagit islerini, problem cozulmus. Cozemiyorsan, bu kadar insaniz yahu, arkadaşlar bilinmeyenler bunlar, hele bu probleme el atin de, imece usulu cozelim ve bu is huzur icinde cozulsun. 
 
 Daha denklemde bilesenleri yerine koyamadan "Melek'in akli yetmedi, Hayri'ye sopa vurmayinca benim aklimin yetmediklerini yettiremedi, Gunduz zaten 6 dedim miydi basip gidiyor" demek yakisik aliyor mu hic? 
 
