@@ -1,22 +1,22 @@
 Video: https://www.youtube.com/watch?v=2w-dnUpuhNk
 
-== Video Baslangici ==
+== Video Başlangıcı ==
 
-Faruk Sengun: ..bu basimiza gecen sene geldi yani. Diyosun ki bunu yap, acaba nasil olur? Hani buradaki, sizi tenzih ediyorum bayan arkadaslar onu bastan soyleyeyim ama basimiza gelenleri soyluyorum ki siz de kendinize pay bicin bu durumlardan. Bayan arkadaslarin yazilimci olmamasi veya yazilimcinin yazilim sektorundeki sikintisi su: zaman mefhumundan dolayi biraz problem yasaniyor. Bu Sakarya icin belki gecerli olabilir ama Istanbul icin daha farkli bir duygu. Diger bir durum, ya simdi soyle bisi soyliyim, yazilim sektorunde sinir stres sahibi olmamak icin, kesinlikle bir sinir stres sahibi olursun. O anki karsindaki bir erkek yazilimciysa buna istedigini soyleyebilirsin ama bayana soyleyemiyorsun.
+**Faruk Şengün**: ... bu başımıza geçen sene geldi yani. Diyosun ki "bunu yap", acaba nasıl olur? Hani buradaki, sizi tenzih ediyorum bayan arkadaşlar onu baştan söyleyeyim; ama başımıza gelenleri söylüyorum ki siz de kendinize pay biçin bu gibi durumlardan. Bayan arkadaşların yazılımcı olmaması veya yazılimcının, yazılım sektorundeki sıkıntısı şu: zaman mefhumundan dolayı biraz problem yaşanıyor. Bu Sakarya için belki geçerli olabilir; ama İstanbul için daha farklı bir duygu. Diğer bir durum, ya şimdi şöyle bişi söyliyim, yazılım sektöründe sinir stres sahibi olmamak için, kesinlikle bir sinir stres sahibi olursun. O anki karşındaki bir erkek yazılımcıysa buna istediğini söyleyebilirsin; ama bayana söyleyemiyorsun.
 
-Yani bu projeyi niye yapmadin? Ya iste Faruk Bey su oldu bu oldu falan, kizamiyosun bir sey de diyemiyorsun. Sonucta karsindaki bir bayan yani. Ama karsindaki Ahmet, ya sen bu isi niye yapmadin, nasil adamsin? Basliyorsun kaydirmaya, sov sayiyosun bu arkadasa. Cunku niye? Senin de bununla ilgili, karsiliginda sen bir proje almissin, bu projeyi Ahmet'e vermissin, Ahmet projeyi yapmamis veya projeyi istedigimiz seviyede bitirmemis.
+Yani "Bu projeyi niye yapmadın?" "Ya işte Faruk Bey şu oldu, bu oldu" falan, kızamıyosun bir şey de diyemiyorsun. Sonuçta karsındaki bir bayan yani. Ama karşındaki Ahmet, "Ya sen bu işi niye yapmadın, nasıl adamsın?" başlıyorsun kaydırmaya, sövüyosun sayıyosun bu arkadaşa. Çünkü niye? Senin de bununla ilgili, karşılığında sen bir proje almışsın, bu projeyi Ahmet'e vermişsin, Ahmet projeyi yapmamış veya projeyi istediğimiz seviyede bitirmemiş.
 
-Bizim sektor biraz bu konuda dengesiz, ben size oyle soyliyim. Yani yazilim.. bayan yazilimci konusu, dedigim gibi hani bizim basimiza gelen anektodlardan bazilari bunlardi yani. Cunku gercekten cok dengesiz. 
+Bizim sektor biraz bu konuda dengesiz, ben size öyle söyliyim. Yani yazılım.. bayan yazılımcı konusu, dediğim gibi hani bizim başımıza gelen bazı anektodlardan bazıları bunlardi yani. Çünkü gerçekten çok dengesiz. 
 
-Melek Kocer: Ya acikcasi hani, bunun bayani erkegi oldugunu dusunmuyorum. Bu insanin hani isi on planda tutmasi ve sorumluluk almasi ile ilgili bir seydir diye dusunuyorum ben. 
+**Melek Kocer**: Ya açıkcası hani, bunun bayanı erkeği olduğunu düşünmüyorum. Bu insanin hani işi ön planda tutmasi ve sorumluluk alması ile ilgili bir şeydir diye düşünuyorum ben. 
 
-Faruk Sengun: Iste bu da 100 bayan yazilimci olmak isteyenler arasinda 2 veya 3 kiside belki cikabilir. Ben size soyle soyliyim, Ziraat Bankasi'nin bugun Bilgi Islem muduru bayan ama diger bankalarinki erkek. Boyle.
+**Faruk Şengün**: İşte bu da 100 bayan yazılımcı olmak isteyenler arasında 2 veya 3 kişide belki çıkabilir. Ben size şöyle söyliyim, Ziraat Bankasi'nın bügün Bilgi İşlem Müdürü bayan, ama diğer bankalarinki erkek. Böyle.
 
-Melek Kocer: Peki, siz o bayandan sonra size gelen diger bayanlara sans verdiniz mi?
+**Melek Kocer**: Peki, siz o bayandan sonra size gelen diğer bayanlara şans verdiniz mi?
 
-Faruk Sengun: Vermek istedik ama olmadi. (2:03) 
+**Faruk Şengün**: Vermek istedik; ama olmadı. Çünkü o kadar vakit ayıracak durumumuz yoktu. Yani şöyle bir şey var arkadaşlar, burda cinsiyet ayrımı yapmak kesinlikle belki yanlıştır ama bizim sektör biraz stresli bir sektör, gergin bir sektör. Bayan arkadaşların bu psikolojiyi kaldırabilme oranı biraz düşün bana kalırsa. Zorlanıyolar çünkü yani. Alcağımız kişi, bir sonraki kişi belki iyidir ama şimdi bi kere ağzımız yanmış, üfleyerek yiyoruz yani. Çünkü bir kişiyi aldığınız zaman işe, 5-6 ay sonra bir projede, bir alanında, bir kısmında yer veriyosun, daha sonra 6-7 ay sonra bu kişiyi sen işten çıkardığın anda, o projenin o kısmında yeni bir personeli veya var olan bir personeli empoze etmek zorundasın. Bu da senin için problem. 
 
-Not: 2:03 itibariyle devam etmek isteyenler devam edebilir, ara veriyorum.
+(Bu noktada, saat 11:00 gibi, video yayından kaldırıldı. Son 10-15 saniyelik kısım yazılamadı. [Buradaki](https://drive.google.com/a/leventyalcin.com/folderview?id=0BxLKFjSyiyCIakFxX2JkSVI0Zmc&usp=sharing) kopyadan devam edilecek. Aşağı yukarı, birkaç cümle ve sonraki kişiyi sahneye çağırmak şeklinde bitiyor.)
 
 == Video Sonu ==
 
