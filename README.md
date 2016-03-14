@@ -31,6 +31,7 @@ asil konu, 2.bolumun sonlarindan 3uncu bolumun ortalarina devam ediyor.
 - [Aybars Badur](http://github.com/ybrs)
 - [Bilal Arslan](http://github.com/arslanbilal)
 - [Burak Can](http://github.com/burakcan)
+- [Cansu Sezen](http://github.com/cansusezen)
 - [Emir Karşıyakalı](http://github.com/emir)
 - [Emre YILMAZ](http://github.com/delirehberi)
 - [Eray Aydın](http://github.com/erayaydin)
