@@ -45,5 +45,6 @@ asil konu, 2.bolumun sonlarindan 3uncu bolumun ortalarina devam ediyor.
 - [Kerem Sevencan](http://github.com/keremciu)
 - [Oğuzhan Aslan] (http://github.com/oguzhanaslan)
 - [Samet Aydemir](http://github.com/smtaydemir)
+- [Selim Can CABA](http://github.com/slmcncb)
 - [Timucin Gelici](http://github.com/timucingelici)
 - [Zeki Unal](http://github.com/zekiunal)
