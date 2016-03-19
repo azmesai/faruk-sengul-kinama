@@ -47,7 +47,7 @@ Senden istediğimiz basit;
 
 1.	Bu konuşmanın tamamı için özür dile.
 2.	O umutlarını kırdığın, hayallerini yıktığın kadın arkadaşlarımızdan özür dile, "hatalıydım" de.
-3.	Öncelikle bir çalısanın yasal haklarının neler olduğunu, bu konuda neler öğrenmeleri gerektiğini, alacakları maaşın neyin karşılığı olduğunu anlat.
+3.	Öncelikle bir çalışanın yasal haklarının neler olduğunu, bu konuda neler öğrenmeleri gerektiğini, alacakları maaşın neyin karşılığı olduğunu anlat.
 4.	Madem eğitime heveslisin, Teknokent bünyesinde de buna devam ediyorsun, şeffaf bir stajyerlik programı aç. Kadın ve erkeğin cinsiyetlerine bakılmaksızın istihdam edildiği, eğitildiği, tecrübe kazandırıldığı ve sektöre dahil edildiği bir yapı üret.
 
 Seni vicdanın ve onurunla muhasebeye davet ediyoruz.
