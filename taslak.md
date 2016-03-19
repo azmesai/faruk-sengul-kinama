@@ -1,58 +1,53 @@
 # Taslak
 
-Bak beyim, sana iki cift lafimiz var! Lafimiz tabi ki de cunku biz coguluz, biz cogunluk olaniz, guruh da biziz, topluluk da. Emekci de biziz, bizden akan alin terinin toplami seninkinden her zaman daha buyuk. Gormezden gelebilecegin degiliz, gozunun onunde ufku doldurabilecek kadariz. Bundan mutevellit ac kulaklarini da dinle. 
+"İşbu kınama yazısı, yaptığınız konuşma üzerine doğan bir mecburiyet sonucu kollektif olarak yazılmış bir özür çağrısıdır."
 
-Yasar ustanin da dedigi gibi;
+**Bak beyim, sana iki çift lafımız var!**
 
-> Koskoca adamsin, paran var, pulun var, her seyin var. Binlerce kisi calisiyor emrinde, yakisir mi sana..
+Elbirliği ile yazılması bizim çoğul olan olmamızdan. "Gürüh" da biziz, topluluk da. Ekmeğini yediğin sektörde kendi ehemmiyetini nasıl biçersen biç, biz yoksak sen de yoksun. Haliyle bu yazılanları görmezden gelmeyi tercih edersen, tıpkı yaptığın konuşmada düştügüm gibi kendine zarar bir hataya düşersin. Dememiz o ki, kendine, ürettiğine kıymet veriyorsan aç kulaklarını ve dinle.
 
-diye devam etmek isterdik sozlerimize. Edemiyoruz. Konusmanda diyorsun ya "bizim sektor, bizim sektor, bizim sektor, bizim sektor", birak dunya genelini sadece bulundugun ulkenin BT pazar buyuklugunu dusun ve bunu bir elinde tut. Diger eline de koy bakalim kendi sirketinin kar degerini. Ne oldu? Sence terazinin sana ait olan tarafi diger tarafi bir milimetre oynatabilecek mi? Soyliyim beyim, hic bosuna ugrasma, o terazinin diger tarafini hicbir zaman oynatamayacaksin. O yuzden bu sektor sen ve saz arkadaslarinin degil. Bu sektor hepimizin, sayimiz daha cok oldugu icin bizim, sektor biziz, buyuk biziz, velev ki bazi hayvanlar daha esitse (G. Orwell, Hayvan Ciftligi), daha esit olan hayvanlar da biziz. 
+Yaşar ustanın da dediği gibi;
 
-Simdi kimin hangi koltukta oturdugunu biliyorsak gel iki lafin belini kiralim. 
+> Koskoca adamsın, paran var, pulun var, her şeyin var. Binlerce kişi çalısıyor emrinde, yakışır mı sana...
 
-Demissin ki; "sektorde sinir/stres sahibi olursun".
+diye devam etmek isterdik sözlerimize. Edemiyoruz. Konuşmanda diyorsun ya "bizim sektör, bizim sektör, bizim sektör, bizim sektör", bırak dünya genelini sadece bulunduğun ülkenin BT pazar buyuklüğünü terazinin bir kefesine, diğerine de kendi şirketini koy ve kantarın topuzu nereye meyil ediyor bir bak. Yani sen yarın bu sektörde olmasan, ya da hic olmamiş olsan ne kaybeder bu sektör sektörlüğünden. Bazen insan perspektifini kaybediyor. Şiddetli bir miyopun sonucu ne kadar kifayetsiz olduğunu unutabiliyor. Gönül ister ki gün gibi aşikar olanı sana hatırlatmak zorunda kalmasaydık: BU SEKTÖR SEN VE SAZ ARKADAŞLARININ DEĞİL. Bu sektör hepimizin. Sektör biziz, sayıca çok olan biziz. Velev ki bazı hayvanlar daha eşitse daha eşit olan hayvanlar da biziz (G. Orwell, Hayvan Çiftligi).
 
-Biz izah edelim sana beyim, uzun lafin kisasi olmazsin. Her seyden evvel sinirlenmek, celallenmek, siddete ve kufre basvurmak insanligin en ilkel halinin eseridir. Yaptigimiz islerin kolay olmadigi su gibi berrak ve net. Hangi is kolay ki? 
+Kimin hangi koltukta oturduğunu tesis ettiysek, gel iki lafın belini kıralim.
 
-Her sabah uyandigimizda biliyoruz ki bilgisayarin basina gectigimizde gunun alametifarikasi ayri olacak. Hergun baska bir seye meydan okuyup, baska seylerini ustesinden gelecegiz. Yeni seyler ogrenip, yeni basarilar elde edecegiz. Bununla beraber Rene Descartes'in "Aslinda cevremde zekasi benden daha keskin ve varolan problemleri cok daha hizli cozebilen insanlar biliyorum. Eger daha basarili oldugum insanlar varsa, bu daha istikrarli olabildigimdendir" (Yontem Uzerine Konusma) dedigi bir dunyada biliyoruz ki ogrenmeye devam etmekten, denemekten daha iyi yapabilecegimiz bir sey yok. Biz kizmiyoruz ve deniyoruz. 
+Demişsin ki; "sektörde sinir/stres sahibi olursun".
 
-Dememiz o ki; sinirli ve ofkeliysen bunu yaptigin iste degil kendinde, verdigin taahhutu yerine getiremiyorsan yoneticiliginde, isleri bitiremiyorsan yontemlerinde ara. Nasil ki sen bizim isimizi yapmiyorsan bu sorumluluklari bizim yerine getirmemizi bekleme. 
+Sinirlenmek insana ait olsa da, celallenmek, şiddete ve küfre başvurmak insanlığın en ilkel halinin eseridir. Yaptiğimiz işlerin kolay olmadığı su gibi berrak ve net. Peki söyle hangi iş kolay ki?
 
-Demissin ki; "isler bitmiyor, erkek olunca kufredebiliyorum, kadin olunca birak kufru kizamiyorum da, daha cok calis diyorum calismiyor"
+Her sabah uyandığımızda biliyoruz ki bilgisayarin başina geçtiğimizde günün alametifarikası ayrı olacak. Hergün başka bir şeye meydan okuyup, başka şeylerin üstesinden geleceğiz. Yeni şeyler öğrenip, yeni başarılar elde edeceğiz. Yer yer büyük problemlerin akılcı çözümlerine istediğimiz kadar tez ulaşamayacağız belki. Bununla beraber, Rene Descartes'in "Aslında çevremde zekası benden daha keskin ve varolan problemleri çok daha hızlı çözebilen insanlar biliyorum. Eğer daha başarılı olduğum insanlar varsa, bu daha istikrarlı olabildiğimdendir" (Yöntem Üzerine Konuşma) dediği bir dünyada biliyoruz ki ögrenmeye devam etmekten, denemekten daha iyi yapabileceğimiz bir şey yok. Biz kızmıyoruz ve deniyoruz. Eger biz denememiş olsaydık, senin "benim" diye sahiplendiğin bu sektör hiç varolmamiş olurdu.
 
-Bak beyim isi buraya getirirsen al takke ver kulah, bozusuruz. Unuttuysan hatirlatayim, buyuk olan biziz! 
+Dememiz o ki; sinirli ve öfkeliysen bunu yaptiğin işte değil kendinde, verdiğin taahhütü yerine getiremiyorsan yöneticiliğinde, işleri bitiremiyorsan yöntemlerinde aramalısın. Nasıl ki sen kalkıp da bizim işimizi yapmıyorsan, senin sorumluluklarını da bizim yerine getirmemizi bekleyemezsin.
 
-Verdigin para kara kasimizin, kara gozumunuzun hayrina degil. Hele hele verdigin para onurumuzun karsiligi hic degil. Sen belli ki bu isler nasil oluyor bilmiyorsun. Gel sana anlatalim. 
+Demissin ki; "işler bitmiyor, erkek olunca küfredebiliyorum, kadın olunca bırak küfrü kızamıyorum da, daha cok çalış diyorum çalışmıyor."
 
-Elinde X birim is var, X biriminde yapilmasi gerekenler A, B, C. Bu A, B, C'yi yapmasi gerekenler V, Y, Z. V, Y, Z'yi saglayabilecek insanlar Melek, Hayri, Gunduz. Yap zamanlama planlarini, dagit islerini, problem cozulmus. Cozemiyorsan, bu kadar insaniz yahu, arkadaşlar bilinmeyenler bunlar, hele bu probleme el atin de, imece usulu cozelim ve bu is huzur icinde cozulsun. 
+Verdiğin para, kara kaşımızın kara gözümüzün hayrına değil. Hiç bir patron çalışanına ürettiğinden, katma değerden daha fazla para vermez. Verse kar edemez. Yani ödediğin maaş bir lütuf değil. Eğer çalişanlarından istediğin verimi alamıyorsan ya ödediğin maaş yanlış, ya da yanlış insanlara yanlış görevleri taksim ediyorsun. Erkek de olsa kadın da olsa KÜFÜR EDEREK İŞ YAPTIRAMAZSIN. Sen çalışanlıyla arasında kontratı olan, ve o kontratın karşılığını alamadığı zaman yasal yollar neye müsade ediyorsa ancak onu takip edebilecek olansın. Beş çocuklu evin işçi babası gibi gönlün çektikçe çalısanını azarlayamazsın. Erkek ya da kadın olmasının bu anlamda en ufak bir kifayeti yok.
+Mevzunun kimin senin küfrünü azarını tolere edip edemeyeceği ile alakalı olmadığını sana şöyle anlatalım:
 
-Daha denklemde bilesenleri yerine koyamadan "Melek'in akli yetmedi, Hayri'ye sopa vurmayinca benim aklimin yetmediklerini yettiremedi, Gunduz zaten 6 dedim miydi basip gidiyor" demek yakisik aliyor mu hic? 
+Elinde X birim iş var, X biriminde yapilması gerekenler A, B, C. Bu A, B, C için yapılması gerekenler V, Y, Z. V, Y, Z'yi sağlayabilecek insanlar Melek, Hayri, Gündüz. Yap zamanlama planlarını, dağıt işlerini, problem çözülmüş olsun. Çözemiyorsan, bu kadar insanız yahu, arkadaşlar bilinmeyenler bunlar, "hele bu probleme el atın" de, imece usulü girişelim ve bu iş huzur içinde çözülsün.
 
-Neyse beyim, bu kadar lakirdi yeter. Dememiz o ki; 
+Daha denklemde bileşenleri yerine koyamadan "Melek'in aklı yetmedi, Hayri'ye sopa vurmayınca benim aklımın yetmediklerini yettiremedi, Gündüz zaten 6 dedim miydi basıp gidiyor" demek yakışık alıyor mu hiç?
 
-1. Sektore yeni girecek tecrubesiz insanlari kendi yanlislarinla, is ahlakini hice sayan bilgilerle bilgilendiremez, guduleyemezsin.
-2. Aldigin fazla is yuku ya da planlayamadigin/yonetemedigin surecler icin;
-	1.	Onur kirici davranislarda (kufur, asagilamak,) bulunamazsin
-	2.	Odemesiz ve karsiliksiz fazla mesaiye birakamaz, secimleri calismamak yonunde olan insanlari saygiyla karsilamaktan daha fazlasini yapamazsin.
-3. Hevesli, azimli, hayalleri olan sadece henuz tecrubeleri olmayan insanlari cinsiyetlerine gore ayrirarak bir kisminin hayallerini (ve geleceklerini) yikan, digerlerinin de ozguvenlerini yikan konusmayi yapamaz, bu ayrimciligi normallestiremezsin.
-4. Hem isine, hem de ozel hayatina saygisi oldugu ve ikisini birbirinden ayirmayi bildigi, kole pazarinin aglarina kendini dolamadigi icin kadinlari suclayamaz, yeteneklerini yargilayamazsin.
+Dememiz o ki;
 
-Bu sebeplerden mutevellit seni kiniyoruz. Egri oturup dogru konusalim beyim, sen kucuk golun orta halli baligisin, biz ise deniz ekosisteminin ta kendisiyiz. Senin kabadayiliklarin da bize sokmez, o kucuk baliklari da yedirmeyiz sana. Hepimiz ziyadesiyle tecrube sahibiyiz, "vay efenim yanlis anlasilmis da dediklerim, oyle demek istemedim de, bak boyle boyle dedim de, aslinda cok da kral adamim da" larina tecrubesiz genc arkadaslarimiz kanabilir ama biz yemeyiz beyim.
+1.	Sana ait olan tecrübeler, sektörün bütününe dair kimseye bir şey anlatmaz. Kibrini kırmaz, kendi küçük dünyani altın standardı sayarsan bir gün batmaya muktedirsin. Zira birden fazla alternatifi olan kalifiye çalişan, senin davranış bozukluklarını tolere etmeyecektir. "Negatif seleksiyon" haliyle seni zaman içinde aciz bırakacaktır. Bunu insan gibi adam çaliştırmayı bilmediğinden sektörde tutunamayıp yok olan bir çok firmanın ve şahsın tarihçesine bakarak doğrulayabilirsin.
+2.	Sektöre yeni girecek, tecrübesiz insanları kendi yanlişlarınla, iş ahlakını hiçe sayan tecrübelerinle güdüleyemezsin. Sektörü sen temsil ediyormuşsun gibi bizi kendine benzeten genellemeler yapamazsın.
+3.	Aldığın fazla iş yükü, ya da planlayamadığın/yönetemediğin süreçler icin;
+i.	Onur kırıcı davranışlarda (küfür, aşağılamak, vs.) bulunamazsın.
+ii.	Ödemesiz ve karşılıksız fazla mesaiye bırakamaz, seçimleri çalısmamak yönünde olan insanlari saygıyla karşilamaktan daha fazlasını yapamazsın.
+4.	Hevesli, azimli, hayalleri olan sadece henüz tecrübeleri olmayan insanları cinsiyetlerine göre ayrırarak bir kısmının hayallerini (ve geleceklerini) yıkan, diğerlerinin de özgüvenlerini zedeleyen tavırlar takınma lüksüne sahip değilsin. Bir topluluk içerisinde sarf ettiğin bu tip ayrımcı sözler uzay boşluğunda kaybolmadığından, geleceğe dair içinde azim taşıyan her gencin kirdığın azmi senin boynunun vebali olacaktır.
+5.	Kadınları, yalnız ve yalnız kadınlıklarından mütevellit genelleyemez, yeteneklerine va kapasitelerine dair karalama yapamazsın.
 
-Senden isteyecegimiz basit. Onurlu bir insan gibi cik sahneye; 
+Yukarıda listeledigimiz mevzulardan mutevellit seni kınıyoruz. Eğri oturup doğru konusmak gerekirse, sen küçük gölün orta halli balığısın. Biz ise, kadınıyla erkeğiyle ekosistemin ta kendisiyiz. Hepimiz ziyadesiyle tecrübe sahibiyiz senin "benim" sandığın bu sektörde. Kendi kafanda biçtiğin ehemmiyetinden mütevellit bir muafiyet sahibi falan değilsin. Söylediklerinin ve olası neticelerinin sorumluluğunu üstlenmekle mükellefsin.
 
-1. Bu konusmanin tamami icin ozur dile. 
-2. O umutlarini kirdigin, hayallerini yiktigin kadin arkadaslarimizdan ozur dile hataliydim de. 
-3. Oncelikle bir calisanin yasal haklarinin neler oldugunu, bu konuda neler ogrenmeleri gerektigini, alacaklari maasin neyin karsiligi oldugunu anlat.
-4. Madem egitime heveslisin, Teknokent bunyesinde de buna devam ediyorsun, seffaf bir stajyerlik programi ac, ayni oranda kadin ve erkegin istihdam edildigi, egitildigi, tecrube kazandirildigi ve sektore sahil edildigi bir yapi uret. 
+Senden istediğimiz basit;
 
-Ola ki yapmadin bu isteklerimizi cevapsiz biraktin, bu bizim degil senin vicdanin ve onurunla arandaki muhasebe, bize soz dusmez.
+1.	Bu konuşmanın tamamı için özür dile.
+2.	O umutlarını kırdığın, hayallerini yıktığın kadın arkadaşlarımızdan özür dile, "hatalıydım" de.
+3.	Öncelikle bir çalısanın yasal haklarının neler olduğunu, bu konuda neler öğrenmeleri gerektiğini, alacakları maaşın neyin karşılığı oldugunu anlat.
+4.	Madem eğitime heveslisin, Teknokent bünyesinde de buna devam ediyorsun, şeffaf bir stajyerlik programi aç. Kadın ve erkeğin cinsiyetlerine bakılmaksızın istihdam edildiği, eğitildiği, tecrübe kazandırıldığı ve sektöre dahil edildiği bir yapı üret.
 
-
-
-
-
-
-
- 
-
+Seni vicdanın ve onurunla muhasebeye davet ediyoruz.
