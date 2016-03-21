@@ -27,6 +27,7 @@ asil konu, 2.bolumun sonlarindan 3uncu bolumun ortalarina devam ediyor.
 ---
 
 ## Kınamaları İmzalayanlar:
+- [Arda Yalçıner](http://github.com/wizard)
 - [Armagan Amcalar](http://github.com/dashersw)
 - [Aybars Badur](http://github.com/ybrs)
 - [Bilal Arslan](http://github.com/arslanbilal)
