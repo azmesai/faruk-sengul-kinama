@@ -1,4 +1,7 @@
 # faruk-sengun-kinama
+
+Bu kınamaya hak veriyor ve katılmak istiyorsanız [change.org/azmesai-faruk-sengun-kinama](https://www.change.org/p/faruk-argede-com-tr-cinsiyet%C3%A7i-ve-i%C5%9F-ahlak%C4%B1na-ayk%C4%B1r%C4%B1-konu%C5%9Fmas%C4%B1ndan-%C3%B6t%C3%BCr%C3%BC-faruk-%C5%9Feng%C3%BCn-e-%C3%B6z%C3%BCr-%C3%A7a%C4%9Fr%C4%B1s%C4%B1d%C4%B1r-a489d069-fcf8-4c1b-9129-19808d494c95) adresinden imza atabilirsiniz.
+
 edit : Sahsin ismi sozlukten bir suser'in uyarisi uzerine Sakarya Teknokent web sayfasinda yanlis yazildigini ogrenmis bulunduk.
 
 
